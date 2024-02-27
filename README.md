@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...wed designing,creative ideas.
 - 📫 How to reach me ... @raviiiiiiiiiiiiiiiii my ig id
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... there is no tomorrow 
+- ⚡ Fun fact: ... we are not future we are present
 
 <!---
 padalaraviteja/padalaraviteja is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
