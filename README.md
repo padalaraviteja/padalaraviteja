@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...sports,gaming,browsing.
 - 🌱 I’m currently learning ...github,devops.
 - 💞️ I’m looking to collaborate on ...wed designing,creative ideas.
-- 📫 How to reach me ... @raviiiiiiiiiiiiiiiii my ig id
+- 📫 How to reach me ... @raviix.o my ig id
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... we are not future we are present
 
